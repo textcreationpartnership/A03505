@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-the CROWNE of all HOMERS WORKES Batrachomyomachia Or the (Battaile of Frogs and Mise. His Hymn's — a
+
 1. TO MY EVER MOST-WORTHIE-TO-BE-MOST HONOR'D LORD, THE EARLE OF SOMERSET, &c.
 
 1. The occasion of this Impos'd CROWNE.
